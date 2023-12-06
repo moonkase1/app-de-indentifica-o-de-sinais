@@ -1,0 +1,1 @@
+# app-de-indentifica-o-de-sinais
